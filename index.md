@@ -1,4 +1,5 @@
 ---
-title: Welcome to my blog
+title: Welcome to my studio!
 ---
 
+Lychee Nail and Lash Home Studio!
